@@ -1,1 +1,1 @@
-Learned OOP in C++ like a mfkin G not a fkin pussy sitting up my sorry musty ass watching yt videos or paying a hoe for an expensive ass course that doesnt teach me shit
+Learned OOP in C++ like a mfkin G — not by sitting on my ass watching YouTube tutorials or paying for some overpriced course that teaches nothing. Built that shit by actually coding.
